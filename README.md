@@ -3,7 +3,7 @@ Swiss clean LLC is a professional janitorial and facility  maintenance  company 
 	•	Restroom cleaning
 	•	Office cleaning
 	•	Floor technician work
-	•	Trash take-out
+	•	Trash removal
 	•	Breakroom cleaning
 	•	Blinds & deep cleaning
 <h2>Swiss Clean LLC</h2>
